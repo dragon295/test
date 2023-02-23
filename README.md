@@ -1,2 +1,3 @@
-i dont know how to do this LEFT ?
+i dont know how to do this TOP ?
+
  
