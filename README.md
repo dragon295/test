@@ -1,2 +1,2 @@
-i dont know how to do this RIGHT ?
+i dont know how to do this LEFT ?
  
